@@ -4,7 +4,7 @@
 28.11.2022
 
 ## Thema
-Alle erlaubt was legal ist
+Alles erlaubt was legal ist
 
 ## Pflicht
 
